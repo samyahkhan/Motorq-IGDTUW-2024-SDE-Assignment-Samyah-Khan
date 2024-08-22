@@ -1,0 +1,1 @@
+# Motorq-IGDTUW-2024-SDE-Assignment-Samyah-Khan
